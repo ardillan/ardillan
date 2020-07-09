@@ -5,4 +5,4 @@ Me llamo Adrián, soy un diseñador gráfico reconvertido en desarrollador web. 
 - ⚡ He tocado en un grupo de post-rock llamado [The Room](https://somostheroom.bandcamp.com).
 - 👨‍💻 Tengo una sección en mi web donde muestro los [diferentes espacios](https://ardillan.com/espacios) en los que he trabajado.
 - 🎮 Me encantan los videojuegos; sobretodo aquellos que se consideran un poco más independientes.
-- 🚲 Disfruto desplazándome en bicicleta; de hecho participo en una asociación donde tratamos de fomentar el uso del transporte sostenible.
+- 🚲 Disfruto desplazándome en bicicleta; de hecho participo en una [asociación](https://reciclateya.com) donde tratamos de fomentar el uso del transporte sostenible.
